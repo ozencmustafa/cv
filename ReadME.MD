@@ -1,3 +1,5 @@
+https://ozencmustafa.github.io/cv/ 
+
 crop circle
 https://crop-circle.imageonline.co/
 
